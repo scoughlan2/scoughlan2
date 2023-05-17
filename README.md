@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-- 🔭 I’m currently training
 - 📫 How to reach me: email/chat
 - 😄 Pronouns: she/her
 
